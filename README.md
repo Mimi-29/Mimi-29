@@ -24,4 +24,6 @@ Have questions or want to connect/collaborate?
 📧 Email: [ogundelemiracle919@gmail.com ]
 🐦 Twitter: [@Mi53994Miracle]
 🔗 LinkedIn: https://www.linkedin.com/in/ogundele-miracle-480ab9278
+Call me on: 09058416759, 08020585002
+WhatsApp me on: 08164729495
 🌐 Portfolio: [yourportfolio.com]
